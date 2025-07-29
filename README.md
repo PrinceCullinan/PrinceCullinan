@@ -2,4 +2,4 @@
 - 👀 I’m interested in improving yourself, as well as сreating something unusual and interesting
 - 🌱 I’m currently learning at the Skillbox IT school
 - 💞️ I’m looking to collaborate and friendship. To share experience and knowledge
-- 📫 How to reach me: TG: @grazyrussian, inst: @prince.cullinan, linkedIn: https://www.linkedin.com/in/mark-dudnikov-55bbb4222/
+- 📫 How to reach me: TG: @mdudnikov, linkedIn: https://www.linkedin.com/in/mark-dudnikov-55bbb4222/
